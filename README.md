@@ -34,6 +34,6 @@ Michael Baron is David Carroll Professor of Mathematics and Statistics at Americ
  
  -------------------------------------------------------------------------------
  
-更多关于出版的相关译著相关问题讨论，可提交到Github或者发Email：guotao0628@outlook.com.
+更多关于出版的相关译著相关问题讨论，可提交到Github或者发Email：guotao3s@o163.com.
 
 ----------------------------------------------------------------------------- 
